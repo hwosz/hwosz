@@ -6,3 +6,4 @@ hwosz123@gmail.com
 instagram: hwoszz
 - 😄 Pronouns: he/they
 - ⚡ Fun fact: I'm 17, and currently in College
+Usually on here to download pokemon roms or emulators but Fahim made me make an account
