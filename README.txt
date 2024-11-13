@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hwosz (Harry)
-- 👀 I’m interested in AI, ML and Pokemon, as well as online gaming and Law!
+- 👀 I’m interested in Pokemon, cybersecurity, online gaming and Law!
 - 🌱 I’m currently learning in a T-Level in digital production, development and design
 - 📫 How to reach me:
 hwosz123@gmail.com
