@@ -1,9 +1,5 @@
-- 👋 Hi, I’m @hwosz (Harry)
+- 👋 Hi, I’m @hwosz
 - 👀 I’m interested in Pokemon, cybersecurity, online gaming and Law!
-- 🌱 I’m currently learning in a T-Level in digital production, development and design
-- 📫 How to reach me:
-hwosz123@gmail.com
 instagram: hwoszz
 - 😄 Pronouns: they/he
-- ⚡ Fun fact: I'm 18, and currently in College
 usually on here to download pokemon roms or emulators but Fahim made me make an account and Dinika made me use it too
